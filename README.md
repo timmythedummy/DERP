@@ -1,11 +1,6 @@
 # DERP
-**BEEP**
-*i am tim!!!!!!!!!!!!!!!!*
+BEEP
+
+**this text will be bold** i am tim!!! 
+toast!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! i like it
 i herd you liek mudkipz
-even if you dont
-._.
-timtimtimtimtimtimtimtitmititimitmimtim
-tiitmtmimititmtimtimtimtimtimtimtimtmimitmitmitmit
-i am dumb yay? 1+1=fish
-breaking news something bad happend
-cupcupcupcupcup
