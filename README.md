@@ -5,5 +5,4 @@ i am tim!!!!!!!!!!!!!!!!
 even if you dont
 ._.
 timtimtimtimtimtimtimtitmititimitmimtimtiitmtmimititmtimtimtimtimtimtimtimtmimitmitmitmit
-i am dumb yay?
- vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv6
+i am dumb yay? 1+1=fish
